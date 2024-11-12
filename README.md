@@ -10,6 +10,7 @@
 2️⃣ 一张14天50%收益加成卡，加速您的赚钱步伐！
 
 3️⃣ 绑定设备奖励，每台设备可获1~5元不等，多绑多得！
+![image](https://i0.wp.com/cccimg.com/view.php/ece4ffa7b2891f86330aa34ed41e754a.jpg)
 
 新手必看Q&A：
 
